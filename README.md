@@ -1,0 +1,1 @@
+# tipps_spss_ua9
